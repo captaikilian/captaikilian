@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @captankilian
+- 👀 I’m interested in airplanes and technic
+- 🌱 I’m currently learning to programm
+- 📫 How to reach me kilian.fuchs2009@gmial.com
+- 😄 Pronouns: He
